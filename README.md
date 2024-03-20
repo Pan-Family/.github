@@ -1,1 +1,3 @@
 # Pan-Family
+
+## パンデッドのみんなのためのOrganizationなのです！
